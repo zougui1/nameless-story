@@ -44,7 +44,7 @@ design:
   - he has 2 big horns on the head plus 4 smallers horns.
     - the top small horns are curved upward and the bottom small horns are curved downward and are placed like here:
     - ![horns](https://cdn.discordapp.com/attachments/639839893970747397/1090683929704542338/image.png)
-    both the top and bottom horns should be of the same size as the middle horn in the above picture
+    - both the top and bottom horns should be of the same size as the middle horn in the above picture
   - his back spikes (from head to tailtip), horns and claws are all made of ice
     - design of the spikes:
     - ![design of the spikes](https://cdn.discordapp.com/attachments/639839893970747397/1090684984446169088/image.png)
