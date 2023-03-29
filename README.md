@@ -1,6 +1,3 @@
-ReferenceError: Nameless Story is not defined
+# Endless Dragon Conflict
 
-name ideas:
-  - Scales of Furry
-  - Claws of Furry
-  - Tails of Furry
+Work in progress
