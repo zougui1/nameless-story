@@ -9,6 +9,8 @@ Settings:
 
 ## Feral Dragons
 
+The lifespan of feral dragons ranges between 800 and 1000 years.
+
 (NSFW)
 Dragons don't care about privacy. They may or may not go somewhere "private" to have sex but they don't care if anyone hears or is watching them.
 
@@ -32,9 +34,19 @@ They are dragons who don't want to coexist with dragons. They may have different
 
 They just want to live their life. They don't care about anthros, pacifists or supremacists.
 
+### Furred/maned feral dragons
+
+Furred and maned feral dragons originally don't exist. They will eventually appear as hybrids between furred anthros and feral dragons.
+The supremacists won't consider furred/maned dragons to actually be dragons. They will see them as lesser beings, as nothing more than the anthros.
+
 ## Anthros
 
-Anthros can be of any species. However, anthro dragons are rare as they are hybrids between feral dragons and anthros of whatever species.
+Anthros can be of any species.
 
 (NSFW)
 Anthros value privacy during intimate moments. They generally don't want anyone to see or hear them having sex (excluding kinks).
+
+### Anthro dragons
+
+Anthro dragons are rare as they are hybrids between feral dragons and anthros of any species.
+They are very strong, not as much as feral dragons but not too far off.

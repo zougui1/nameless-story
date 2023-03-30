@@ -32,3 +32,12 @@ colors:
 colors (NSFW):
   - cock: #1fdcff
   - cum: #dff0ff
+
+## Past
+
+His mother was raped and enslaved (as a sex slave) by a hellhound. Later on she laid multiple eggs that were all corrupted by the seed of the demonic beast. But only one of them hatched, Nalvados' egg (Which would explain why he's part demon).
+After a few years, they tried to escape but the hellhound noticed them trying to escape. His mother gave her life to give him the possibility to escape. He eventually found a group of supremacists that eventually found out about a hellhound that was summoned by anthros to try and help them fight supremacist dragons. After learning that, while Nalvados hated demons more than anything, he grew a profound hatred for anthros.
+
+## Notes
+
+Nalvados is a firm believer that feral dragons are the best beings in the world and should never lower themselves for beings of other species. That anthros deserve nothing, not even breathe the same air as dragons.

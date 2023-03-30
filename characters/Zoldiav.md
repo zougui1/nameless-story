@@ -28,3 +28,11 @@ colors (NSFW):
   - cock: #923300
     - barbs: #bf7810
   - cum: #fee
+
+## Past
+
+TODO
+
+## Notes
+
+Zoldiav wouldn't mind having a few anthro slaves.
