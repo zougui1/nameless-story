@@ -7,6 +7,7 @@ sexuality: pansexual (switch)
 clan: Supremacist
 design:
   - he has frills on his back from head to tailtip
+  - has has ears
   - his scales are smooth and his underside is soft
   - he has one fang sticking out of each side of his muzzle
   - his eyes glow when angry
@@ -20,7 +21,7 @@ colors:
   - body: #af2c23
   - underside: #976f6f
   - horns and claws: #333
-  - frill dividers: #5a0908
+  - frill spines: #5a0908
   - frill and wing membranes: #bf4239
   - eyes: #70127a
 

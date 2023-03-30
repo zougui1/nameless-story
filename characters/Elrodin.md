@@ -6,12 +6,24 @@ gender: male
 sexuality: gay (dom)
 clan: Supremacist
 design:
+  - he has frills on the back from head to tailtip
+  - he has earfins
+  - his scales are smooth
+  - his underside is plated
 
 design (NSFW):
+  - cock with a knot and ridges
 
 colors:
+  - body: #f5f5f5
+  - underside: #eeeeee
+  - eyes: #66cc66
+  - frill and ear spines: #9a9a9a
+  - horns and claws: #9a9a9a
+  - frill, ear and wing membranes: #ffeeee
 
 colors (NSFW):
+  - cock: #ff6666, #ffaaaa, #ffffff gradient from the base to the tip
 
 ## Past
 
