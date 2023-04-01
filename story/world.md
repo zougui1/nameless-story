@@ -10,6 +10,8 @@ Settings:
 ## Feral Dragons
 
 The lifespan of feral dragons ranges between 800 and 1000 years.
+Dragons often have scales and a thick hide. However, although it is rare, some can have a thin hide.
+Most dragons can use magic, but some are unable to.
 
 (NSFW)
 Dragons don't care about privacy. They may or may not go somewhere "private" to have sex but they don't care if anyone hears or is watching them.
@@ -42,6 +44,7 @@ The supremacists won't consider furred/maned dragons to actually be dragons. The
 ## Anthros
 
 Anthros can be of any species.
+Anthros can (although not easily) kill dragons with a thin hide. They are able to harm dragons with a thick hide but they can't kill them. The only ways they could hurt dragons with scales were to hit their eyes, their ears and their wings. They could blind them and deafen them.
 
 (NSFW)
 Anthros value privacy during intimate moments. They generally don't want anyone to see or hear them having sex (excluding kinks).
@@ -50,6 +53,7 @@ Anthros value privacy during intimate moments. They generally don't want anyone 
 
 Anthro dragons are rare as they are hybrids between feral dragons and anthros of any species.
 They are very strong, not as much as feral dragons but not too far off.
+Their magic is generally weak, about as harmful as arrows. Although that may soon change... However, they can use their magic to escape dragons.
 
 ## History
 
