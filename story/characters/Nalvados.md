@@ -1,11 +1,11 @@
 # Nalvados
 
-species: dragon (demonic)
-element: ice
-gender: male
-sexuality: gay (sub)
-clan: Supremacist
-design:
+- species: dragon (demonic)
+- element: ice
+- gender: male
+- sexuality: gay (sub)
+- clan: Supremacist
+- design:
   - he has 2 big horns on the head plus 4 smallers horns.
     - the top small horns are curved upward and the bottom small horns are curved downward and are placed like here:
     - ![horns](https://cdn.discordapp.com/attachments/1090704829464195084/1090705049451241532/image.png)
@@ -17,19 +17,16 @@ design:
   - the tip of all his icy parts is black and slightly translucent and the rest is bright blue and semi-transparent
   - his underside is plated
   - his scales are visible (optional)
-
-design (NSFW):
+- design (NSFW):
   - the cock has a knot and ridges
-
-colors:
+- colors:
   - body: #0ba8e0
   - underside: #b0d9ff
   - wings membrane: #0fbcf4
   - icy body parts: #abf0ff (opacity: 55%)
   - icy body parts' tipp: #000 (opacity: 80%)
   - eyes: #010080
-
-colors (NSFW):
+- colors (NSFW):
   - cock: #1fdcff
   - cum: #dff0ff
 
