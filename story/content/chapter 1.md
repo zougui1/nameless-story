@@ -25,4 +25,12 @@ Elrodin turned around to face Zoldiav and Nalvados and started speaking. "So, wh
 
 While growling, Nalvados reacted "Those damned dragons. They're no better than pets or even slaves. I can't believe they're letting those filthy anthros ride them!" he was seemingly upset by that prospect.
 
-"Calm down, Nalvados. They've been doing worse and you know it." Nalvados calmed down but was still emitting a low growl.
+"Calm down, Nalvados. They've been doing worse and you know it." Nalvados calmed down but was still emitting a low growl. "As for me. I saw a sorcerer that was capable of killing an adult, scaled dragon with his magic." Nalvados and Zoldiav both looked at Elrodin in shock.
+
+'Wha-what?... An anthro killed a scaled dragon without the help of a dragon??' Nalvados was thinking while processing this information.
+
+Meanwhile, Zoldiav couldn't believe what he heard. He tried to find an explanation instead. "That's impossible! Their magic is way too weak to kill a scaled dragon! Are you sure the dragon didn't have a hide??"
+
+"Enough! I know what I saw! And as hard as it is to believe it's the plain truth. Now let me finish." They both listened Elrodin attentively. "That sorcerer, whoever they may be, demonstrated his prowess in public, in front of many anthros." Nalvados and Zoldiav couldn't believe their ears, they growled with anger. "That dragon did not even try to use magic. I don't know if he simply never had the ability to use magic. But as you well know, dragons who can't use magic are very rare. So I can't help but wonder if they might have incapacitated him somehow. Maybe they have learned of a spell or something that can render us unable to use magic."
+
+"Either way... Anthros are learning powerful magic. If they can kill us with their magic and are also learning to ride dragons, they will become powerful foes. Up until now only dragons were a threat. But this..." Zoldiav started growling even more "This changes everything..."
