@@ -50,3 +50,13 @@ Anthros value privacy during intimate moments. They generally don't want anyone 
 
 Anthro dragons are rare as they are hybrids between feral dragons and anthros of any species.
 They are very strong, not as much as feral dragons but not too far off.
+
+## History
+
+The origin of the war is lost to time. Someone at some point will learn of its origin by reading an old book or something.
+But in the present, the war is simply an endless cycle of violence, anger, revenge and more violence.
+
+## Ideas
+
+- There are groups of anthros stealing feral dragon eggs to have them hatch under their control and influence so they could brainwash them to serve their cause, making them believe the supremacist dragons are wrong and the anthros and pacifist dragons are right.
+- Maybe every pacifist feral dragons originate from dragons that were brainwashed by anthros.
