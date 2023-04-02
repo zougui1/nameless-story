@@ -74,3 +74,33 @@ Nalvados struggled underneath him, trying to get him off of him. When he realize
 "Do you think I don't want to kill them just as much as you do?? But we can't go and attack them blindly otherwise we will be the one who get killed instead!" With renewed strength fueled by his anger, Nalvados struggled harder and he was about to push Zoldiav off of him. Seeing that he is about to break free, Zoldiav quickly bites at his neck hard and that got a loud roar out of him.
 
 Only a split second later, Elrodin stepped next to them "Enough! Stop fighting each other like a couple of hatchlings!" They both suddenly stopped, Zoldiav letting go of his neck. "Save it for our enemy. We WILL attack them. But we can't do it now. We have to report back to the others and we certainly can't kill everyone with just the three of us. Is that understood!?" Nalvados looked up at Elrodin, and after a few seconds he nodded. Zoldiav then stepped off of him. "Good. We will go back to the group. It's a long way from here and night is about to fall. We will sleep here and we'll go at sunlight."
+
+Nalvados stood up and stared at Zoldiav "That's the third time you bit me today, twice on my neck.."
+
+Zoldiav turned his head around to Nalvados "Huh?" When he suddenly jumped at Zoldiav and pinned him down. Zoldiav was now growling at Nalvados "And here you are, giving me a reason to make it four!"
+
+Nalvados playfully bapped his snout with a small chuckle "I knew you liked receiving bites, but I didn't know you liked giving them~"
+
+Zoldiav kept growling "Don't act so tough you tail raiser!"
+
+Meanwhile Elrodin sighed "A minute ago he was about to go on a rampage and now he's behaving like a hatchling... Okay, little ones. We'd better find a cave to sleep in for the night."
+
+"Hear that little boy? Get off me." With a shove of his front paws Zoldiav pushed him off of him.
+
+"Pfft. You're lucky we're still in enemy territory." Nalvados turned around and swayed his tail at Zoldiav in defiance.
+
+"Enough you two! Let's look for a cave. There is a range of mountains north from here, there's probably a cave there. Let's go." Elrodin expanded his wings and flapped a few times before taking off.
+
+"I hope it will be bigger than the one we stayed in during our mission. I don't want to sleep with Zoldiav literally next to me again" After his little remark Nalvados expanded his wings.
+
+Before Nalvados took off, Zoldiav added "The feeling is mutual, you cling to me when you sleep." With that said Nalvados took off in the air and Zoldiav did the same a second after. The three dragons were now flying to the north, towards a mountain range in the hope of finding a cave to sleep in for the night. "So Elrodin, what do you think will happen when we tell the others from the group about everything we've seen at the enemy's training camps?"
+
+"Hmmm... I'm not sure actually. With the anthros now capable to kill any one of us on their own and without much trouble, I doubt we will attack them head on."
+
+"But it was only one of them!"
+
+"I saw only one of them. That doesn't mean there isn't more. Who knows how many are that powerful, and how many more would be by the time we would attack them."
+
+Zoldiav growled in frustration.
+
+"There, I can see the mountains!"

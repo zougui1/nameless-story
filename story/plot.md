@@ -4,6 +4,7 @@
 
 Make their way back to the group drag on. So the three dragons are focused more so the readers can get invested in them.
 
+They will talk about their past, what they'll do once the war is over, etc...
 Maybe a sex scene with the three dragons. Where Elrodin fucks them both, one after the other.
 
 The chapter will end when the team has made it back to their group and have told them everything they've learned on the enemy.
