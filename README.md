@@ -1,3 +1,3 @@
 # Endless Dragon Conflict
 
-Work in progress
+- chapter 1: Work in progress

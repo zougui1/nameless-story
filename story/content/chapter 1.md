@@ -37,7 +37,7 @@ Not long after, however, Nalvados dived into the water next to Zoldiav and bit d
 
 However, just when he thought he was gonna get bit, Nalvados was no longer moving. "Did my bite excite you that much?~" Nalvados said while chuckling and pointing to Zoldiav's lower part of his body. Zoldiav, confused by Nalvados' behavior looked between his legs. His member was sticking out, not fully erect, but very well visible.
 
-Flustered by this sudden turn of event Zoldiav swam back up and emerged, followed by Nalvados. "D-don't be such a fool! As if a nuisance like you could get me hard! I was rubbing my slit before you attacked me!"
+It wasn't uncommon for feral dragons to see other dragons' private parts. They often watched others having sex, some even casually have sex in front of everyone without a care in the world. However, Zoldiav felt very embarrassed, he didn't just get hard in front of his rival, he was hard in the middle of a fight. Flustered by this sudden turn of event Zoldiav swam back up and emerged, followed by Nalvados. "D-don't be such a fool! As if a nuisance like you could get me hard! I was rubbing my slit before you attacked me!"
 
 Zoldiav and Nalvados were so focused on their little fight that they did not even notice Elrodin was here watching them. And was now right behind Zoldiav. "We all know you enjoy it when someone bites you~"
 
@@ -63,4 +63,14 @@ Meanwhile, Zoldiav couldn't believe what he heard. He tried to find an explanati
 
 "Enough! I know what I saw! And as hard as it is to believe it's the plain truth. Now let me finish." They both listened Elrodin attentively. "That sorcerer, whoever they may be, demonstrated his prowess in public, in front of many anthros." Nalvados and Zoldiav couldn't believe their ears, they growled with anger. "That dragon did not even try to use magic. I don't know if he simply never had the ability to use magic. But as you well know, dragons who can't use magic are very rare. So I can't help but wonder if they might have incapacitated him somehow. Maybe they have learned of a spell or something that can render us unable to use magic."
 
-"Either way... Anthros are learning powerful magic. If they can kill us with their magic and are also learning to ride dragons, they will become powerful foes. Up until now only dragons were a threat. But this..." Zoldiav started growling even more "This changes everything..."
+"Either way... Anthros are learning powerful magic. If they can kill us with their magic and are also learning to ride dragons, they will become powerful foes. Up until now only dragons were a threat. But this..." Zoldiav started growling even more "This changes everything..." Getting angry, Nalvados swims his way to the shore. "Hey, where are you going?"
+
+Nalvados stared back at Zoldiav "I'm going back there, and I'm going to kill them all!" he looked absolutely furious, and the tone of his voice sounded the part too.
+
+"No, you can't go back there! You'll die if you go back! Zoldiav, help me stop him!" Zoldiav nodded and they both swam after Nalvados, who was now out of the water. He expanded his wings and flapped hiw wings to take off. But before he could do so, Nalvados used his magic to prevent him from taking off. While Nalvados flapped harder, struggling as he tried to take off, Zoldiav used this opportunity to get out of the water and before Nalvados realized, Zoldiav jumped onto him and pinned him down, pressing his back against the ground.
+
+Nalvados struggled underneath him, trying to get him off of him. When he realized his efforts were in vain he tried persuasion instead. "Stop! Get off of me! We should kill all the anthros! They deserve to die! Why are you stopping me instead of killing all the anthros that made us suffer?!"
+
+"Do you think I don't want to kill them just as much as you do?? But we can't go and attack them blindly otherwise we will be the one who get killed instead!" With renewed strength fueled by his anger, Nalvados struggled harder and he was about to push Zoldiav off of him. Seeing that he is about to break free, Zoldiav quickly bites at his neck hard and that got a loud roar out of him.
+
+Only a split second later, Elrodin stepped next to them "Enough! Stop fighting each other like a couple of hatchlings!" They both suddenly stopped, Zoldiav letting go of his neck. "Save it for our enemy. We WILL attack them. But we can't do it now. We have to report back to the others and we certainly can't kill everyone with just the three of us. Is that understood!?" Nalvados looked up at Elrodin, and after a few seconds he nodded. Zoldiav then stepped off of him. "Good. We will go back to the group. It's a long way from here and night is about to fall. We will sleep here and we'll go at sunlight."
