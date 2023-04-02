@@ -1,4 +1,4 @@
-# Zoldiav
+# Elrodin
 
 - species: dragon
 - element: air
