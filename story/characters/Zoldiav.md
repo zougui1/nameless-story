@@ -35,3 +35,37 @@ Zoldiav hopes that one day he would find out something about his parents, perhap
 ## Notes
 
 Zoldiav would like to have a few anthro slaves.
+
+## Kinks
+
+- yes
+  - aphrodisiacs
+  - crotch sniffing
+  - foreplay
+  - natural musk
+  - stomach bulging
+  - tail play
+  - teasing
+  - bite/claw marking (giving)
+  - bite/claw marking (receiving)
+  - anal sex (giving)
+  - anal sex (receiving)
+  - rimming (giving)
+  - rimming (receiving)
+  - vaginal sex (giving)
+  - fellatio (giving)
+  - fellatio (receiving)
+  - fingers in mouth
+  - kissing
+  - licking
+  - teeth play
+  - throat penetration (receiving)
+  - docking
+  - tail sex
+- maybe
+  - potions/injections
+  - cunnilingus (giving)
+  - throat penetration (giving)
+- no
+  - interracial
+  - sex toys

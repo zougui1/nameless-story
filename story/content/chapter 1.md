@@ -97,10 +97,44 @@ Before Nalvados took off, Zoldiav added "The feeling is mutual, you cling to me 
 
 "Hmmm... I'm not sure actually. With the anthros now capable to kill any one of us on their own and without much trouble, I doubt we will attack them head on."
 
-"But it was only one of them!"
+"But it was only one of them!" Zoldiav knew that wouldn't change anything, but he insisted anyway.
 
 "I saw only one of them. That doesn't mean there isn't more. Who knows how many are that powerful, and how many more would be by the time we would attack them."
 
-Zoldiav growled in frustration.
+Zoldiav growled in frustration. He knew he was right. Things weren't that simple, but he wished they were.
 
-"There, I can see the mountains!"
+"There, I can see the mountains!" Nalvados said with a hint of excitement in his voice, he would finally get to rest! All this fighting got him exhausted, even if it was friendly... Partially.
+
+The three dragons were flying around the mountains, looking for a cave where they could sleep in for the night. "I think I see something!" Zoldiav said with a bit of excitement and he immediately picked up the pace while Elrodin and Nalvados looked at each other in confusion. Zoldiav lands on a small platform on the side of the mountain. In front of him was a crack in the mountain, he put his snout in to take a peek inside before going in.
+
+The other two dragons, seeing their friend disappear into the mountain went after him. Nalvados turned his head to look at Elrodin "Did he find a cave??"
+
+"It appears so!" Elrodin landed on the platform Zoldiav was previously on, that platform was so small Nalvados had to keep flapping his wings to stay in the air until Elrodin went into the crack Zoldiav went into seconds ago.
+
+Nalvados landed on the small platform and looked at the crack that was in front of him "That crack is awfully small, the cave better not be as small..." with that said, Nalvados stepped in. The crack was small, but large enough for a dragon to pass through.
+
+"Your eyesight really is good! How did you even see that small crack from that far back?" (**TODO: add details here**)
+
+"Do you really intend to sleep here tonight? Can't even call that a cave, it's nothing more than just a small hole in the mountain!" Displeased with the size of this shelter, Nalvados grunted.
+
+"Feel free to go back outside and search for a better alternative." Nalvados gave a grunt at Zoldiav's remark and he decided to just sit down. "What's the problem with small caves anyway? It's not like sleeping with other dragons bother you. Does it have something to do with your past?"
+
+Nalvados growled at the mention of his past "That's none of your business." (**TODO: add details here**)
+
+"Come on, why don't-" Zoldiav was cut off by Elrodin who was staring at him.
+
+"I think it would be preferable not to insist, he does not seem inclined to tell us about his past." (**TODO: add details here**)
+
+Nalvados sighed "I'm gonna sleep..." he laid down then curled up into a ball while closing his eyes. He was half trying to sleep and half listening to the other two discussing.
+
+Zoldiav turned to look at Elrodin who was still looking at him "What? I was just curious. Aren't you curious about his past?"
+
+"Did he look like he wanted to talk about his past? You should know better than to insist." (**TODO: add details here**)
+
+"Now that I think about it I don't know about your past either. You were already in the group back when I joined. Have you always been a part of this group?" (**TODO continuation**)
+
+---
+
+# Planned continuation
+
+They start talking about their past. After that they go sleep. Eventually Nalvados gets nightmares about his past and wakes up, along with Elrodin. Then they have sex together. At some point, while they're enjoying themselves, they wake up Zoldiav.
