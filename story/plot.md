@@ -22,3 +22,7 @@ Options:
 ## Notes
 
 The leader of the three dragons' group can read others' mind by placing a paw on their head. He can also transmit what he sees to those who are close to him.
+
+## Eventually
+
+At some point, in the far future, Zoldiav meets his parents, although he doesn't realize it yet. His parents do notice that Zoldiav has a familiar scent, the mother sniffs him for a bit to confirm her suspicions. They tell him he's their lost egg.. He has a few siblings. They're all neutrals. Maybe eventually his siblings and parents find themselves in danger.

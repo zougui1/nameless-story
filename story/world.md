@@ -9,7 +9,9 @@ Settings:
 
 ## Feral Dragons
 
-The lifespan of feral dragons ranges between 800 and 1000 years.
+- lifespan: 800 to 1000 years
+- clutch size: 4 to 9 eggs
+
 Dragons often have scales and a thick hide. However, although it is rare, some can have a thin hide.
 Most dragons can use magic, but some are unable to.
 

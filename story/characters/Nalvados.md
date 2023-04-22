@@ -5,6 +5,7 @@
 - gender: male
 - sexuality: gay (sub)
 - clan: Supremacist
+- age: 35
 - design:
   - he has 2 big horns on the head plus 4 smallers horns.
     - the top small horns are curved upward and the bottom small horns are curved downward and are placed like here:
@@ -24,10 +25,9 @@
   - underside: #b0d9ff
   - wings membrane: #0fbcf4
   - icy body parts: #abf0ff (opacity: 55%)
-  - icy body parts' tipp: #000 (opacity: 80%)
+  - icy body parts' tipp: #000000 (opacity: 80%)
   - eyes: #010080
-- colors (NSFW):
-  - cock: #1fdcff
+  - flesh: #1fdcff
   - cum: #dff0ff
 
 ## Past
